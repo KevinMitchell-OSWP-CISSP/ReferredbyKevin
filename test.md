@@ -385,7 +385,8 @@
 [Mechanical/Process System Project LeaderFull-time](https://jobs.smartrecruiters.com/BoschGroup/743999962621723-mechanical-process-system-project-leader?trid=8112fa2b-7066-4fec-b4c8-c3d1b2c6e3a6&rsid=3357b9a0-56af-4c05-9ed4-9fb052844da6)
 [Sales and Marketing Representative for New York - Diablo Tools - Westchester CountyFull-time](https://jobs.smartrecruiters.com/BoschGroup/743999956671323-sales-and-marketing-representative-for-new-york-diablo-tools-westchester-county?trid=8112fa2b-7066-4fec-b4c8-c3d1b2c6e3a6&rsid=3357b9a0-56af-4c05-9ed4-9fb052844da6)
 [Mechanical Assembly - 2nd shiftFull-time](https://jobs.smartrecruiters.com/BoschGroup/743999952700480-mechanical-assembly-2nd-shift?trid=8112fa2b-7066-4fec-b4c8-c3d1b2c6e3a6&rsid=3357b9a0-56af-4c05-9ed4-9fb052844da6)
+
 [CNC Machinist, 2nd shiftFull-time](https://jobs.smartrecruiters.com/BoschGroup/743999931390698-cnc-machinist-2nd-shift?trid=8112fa2b-7066-4fec-b4c8-c3d1b2c6e3a6&rsid=3357b9a0-56af-4c05-9ed4-9fb052844da6)
 
 
-For more information on career opportunities, visit [ReferredbyKevin](https://www.bosch.us).
+
